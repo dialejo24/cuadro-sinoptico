@@ -1,1 +1,1 @@
-# cuadro sipnotico sobre el capital intelectual
+# cuadro sinóptico sobre el capital intelectual
